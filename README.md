@@ -1,325 +1,115 @@
-# wllgavi md
-<img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+# wllgavi 
+<a><img src='https://files.catbox.moe/9si4ft.png'/></a>
+ <h1 align="center"> wllgavi M͛D͛ </h1>
+<a><img src='https://files.catbox.moe/9si4ft.png'/></a>
+<a><img src='https://files.catbox.moe/9si4ft.png'/></a>
+      
+![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗔𝗠+VERY+ALONE+KINDLY+DEPLOY+ME😢)
+
+<a><img src='https://files.catbox.moe/9si4ft.png'/></a>
+<a href='https://chat.whatsapp.com/E0Heg99qzJUKd34dwX60h5' target="_blank"><img alt='Join.support' src='https://img.shields.io/badge/Join for support...-100000?style=for-the-badge&logo=scan&logoColor=white&labelColor=black&color=skyblue'/></a>
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=100&pause=1000&color=FF033E&center=true&width=1000&height=200&lines=wllgavi_md" alt="Typing SVG" /></a>
-  </p>
-
-`© NEW REPOSITORY wllgavi_md💛`
-
---------------------------
-- **ANTI-DELETED 🚀**
-- **ANTI-VIEWONCE 🚀**
-- **AUTO-UPDATE 🚀**
-- **AUTO_VOICE 🚀**
-- **AUTO_STICKER 🚀**
-- **AUTO_REPLY 🚀**
-- **ALWAYS_ONLINE_OFFLINE 🚀**
-- **STATUS_REPLY_REACT 🚀**
-- **ON_AND_OFF_DATABASE🚀**
-- © ***POWERD BY SILENTLOVER432***
-
----------
-
-### <br>  ❖ wllgavi_md❖
-🔰 **`THE WORLD BEST WHATSAPP BOT CREATED BY wllgavi_lover432`** 🔰
-
-----------
-
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-
--------
-
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&pause=1000&color=FFFFFF&background=000000&center=true&vCenter=true&multiline=true&random=true&width=435&lines=✰wllgavi_md-WHATSAPP-BOT✰" alt="Typing SVG" /></a>
+<a><img src='https://files.catbox.moe/9si4ft.png'/></a>
  
-------------
+<p align="center"> Introducing wllgavi Md, A Simple WhatsApp user BOT, Created by topu Tech.
+</p>
 
-<img align="center" height="auto"
-src="https://cardivo.vercel.app/api?name=wllgavi_md🚀&description=🥂❤️🔐🚀THE%20WORLD%20BEST%20WHATSAPP%20BOT%★%20CREATED%20BY%20wllgavi%20LOVER%20432%20KING%20OF%20KINGS%20OWNER%20wllgavi%20LOVER%20AND%20wllgavi%20BUTT%20MANGER%20AND%20BUG%20FINDER%20DARKDEVIL⁷¹⁹🖤🔥💀🚀&image=https://i.ibb.co/QvGkkd0/Manul-Ofc-X.jpg?v=4&backgroundColor=%23ecf0f1&github=SILENTLOVER0432&pattern=leaf&colorPattern=%23eaeaea"/>
+  <a href="https://ibb.co/N6NMDtn"><img src="https://files.catbox.moe/v3vzdb.jpg" alt="01" border="0" /></a>                     
+<a><img src='https://files.catbox.moe/9si4ft.png'/>&</a>
+ 
+
+
+
+
+<a><img src='https://files.catbox.moe/9si4ft.png'/></a>
+
+
+#### SETUP
+
+1.👇 Star and Fork This Repo  
+[![Star and Fork This Repo](https://img.shields.io/static/v1?label=Star%20%26%20Fork%20This%20Repo&message=GitHub&color=181717&style=for-the-badge&logo=github&logoColor=white)](https://github.com/Toputech/ALONE-MD-V1/fork)  
 
 <br>
 
-`❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀`
+2. 👇 Get Session ID Here for wa.connection
+[![Get Session ID Here](https://img.shields.io/static/v1?label=Session%20ID&message=Generate&color=FF4500&style=for-the-badge&logo=firefox&logoColor=orange)](https://alone-md-nkds.onrender.com/pair) 
+
 
 <br>
 
---------
-
-</p>
-  <p align="center">
-   <!-- Repo Views -->
-  <img src="https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2FSILENTLOVER0432%2FSILENT-SOBX-MD&count_bg=%2379C83D&title_bg=%23555555&icon=gitpod.svg&icon_color=%23E7E7E7&title=Views&edge_flat=false" alt="Repo Views Badge">
- <a href="https://github.com/goatmesssi10/wllgavi_md"><img title="Followers" src="https://github.com/goatmesssi10/wllgavi_md"></a>
-<a href="https://github.com/goatmesssi10/wllgavi_md"><img title="STARS" src="https://github.com/goatmesssi10/wllgavi_md"></a>
-<a
-href="https://github.com/goatmesssi10/wllgavi_md/fork"><img title="Forks" src="https://img.shields.io/github/forks/SILENTLOVER0432/SILENT-SOBX-MD?style=social"></a>
-<a href="https://github.com/goatmesssi10/wllgavi_md"><img title="Watching" src="https://img.shields.io/github/watchers/SILENTLOVER0432/SILENT-SOBX-MD?label=Watching&style=social"></a>
-<!-- Repo Size -->
-  <img src="https://github.com/goatmesssi10/wllgavi_md?color=gold&label=Repo%20Size&style=plastic" alt="Repo Size">
-  <!-- Developer -->
-  <img src="https://img.shields.io/static/v1?label=OWNER&message=wllgavi%20LOVER432&color=pink&style=plastic" alt="Developer Badge">
-                  
-</p>
-
------------
-----------
-
-<div align="center"><br> <img src="https://profile-counter.glitch.me/wllgavi_md/count.svg" />
-  
-`© CREATED BY wllgavi_lover432`
--
-
-------------
-
-<a><img src='https://files.catbox.moe/k5jpgx.jpg'
-<a><img src='https://files.catbox.moe/k5jpgx.jpg'
-
---------------
-
-`❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀❀`
-
-----------------
-
-![repo views](https://github.com/goatmesssi10/wllgavi_md)
-
-
-![forks](https://github.com/goatmesssi10/wllgavi_md)
-
-
-![stars](https://github.com/goatmesssi10/wllgavi_md)
-
-[![FORK wllgavi_md](https://github.com/goatmesssi10/wllgavi_md/fork)
-
-`⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛`
-
----------------
-
-</a>
-</p>
-
------------------
-
-🥂 `THIS BOT IS CREATED TO DOWNLOAD'S AND FIND VARIOUS TYPES THINGS QUICKLY **EXAMPLE** LOGO, PHOTO, STICKERS, VIDEOS, MOVIES, ADULT, AND MANY MORE FEATURES BY USING THIS BOT™ THIS BOT IS CREATED TO USING` 🥂 **[Baileys](https://github.com/WhiskeySockets/Baileys)🍾🌸💚**
-
-***POWERED BY wllgavi_lover432***🌍🌸
-
-------------------
-
-`⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛`
-
------------------
-
-### <br> ❖ FOR SUPPORT ❖
-
-**`➩ HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHATSAPP ITS ME wllgavi✠LOVER⁴³²࿐➺`**
-
--------
-
-<p align="center">
-  <a href="https://wa.me/+254755835054?text=*ᴀsʟᴀᴍ-ᴜ-ᴀʟᴀɪᴋᴜᴍ+wllgaviᴛʟᴏᴠᴇʀ+ɪ+ɴᴇᴇᴅ+ʜᴇʟᴘ.+ɪ+ᴍᴇssᴀɢᴇᴅ+ʏᴏᴜ+ғʀᴏᴍ+wllgavi_md+ʀᴇᴘᴏ..⁴³²*" target="_blank">
-    <img alt="whatsapp" src="https://img.shields.io/badge/ Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
-
------------    
-
-`✠ IF YOU WANT MORE ABOUT wllgavi_md WHATSAPP BOT :-NEW UPDATED NEW CMDS SO JOIN OUR WHATSAPP GROUP FOR MORE INFORMATION CLICK THIS BUTTON 🔳 AND JOIN THE GROUP ✠`
-
----------
-
-[![WhatsApp Channel](https://img.shields.io/badge/Join-WhatsApp%20Channel-25D366?style=for-the-badge&logo=whatsapp)](https://whatsapp.com/channel/0029VaHO5B0G3R3cWkZN970s)
-
------------
-
-`✠ IF YOU WANT MORE ABOUT wllgavi_md WHATSAPP BOT :-NEW UPDATED NEW CMDS SO SUBSCRIBE OUR YOUTUBE CHANNEL FOR MORE INFORMATION CLICK THIS BUTTON 🔳 AND JOIN THE YOUTUBE CHANNEL ✠`
-
-----------
-
-<div style="text-align: center;">
-    <a
-href="https://youtube.com/@silentlover432?si=n3pYYLvSFLP7Shj7" target="_blank">
-    <img src="https://img.shields.io/badge/follow-YouTube Channel-FF0000?style=for-the-badge" alt="YouTube Channel">
-</a>
-
---------------
-
-`✠`✠`✠`✠`✠`✠`✠`✠`✠`✠`✠`✠`✠`✠`✠`✠
-
-### <br> ❖ DEPLOY AND SESSION METHOD ❖
+3.👇 Create Account on Heroku  
+[![Create Account on Heroku](https://img.shields.io/static/v1?label=Create%20Account&message=Heroku&color=430098&style=for-the-badge&logo=heroku&logoColor=red)](https://heroku.com)  
 
 <br>
 
-`✠ HOW TO DEPLOY wllgavi_md ON HEROKU WATCH VIDEO AND SUPPORT OUR YOUTUBE CHANNEL ✠`
+4.👇 Deploy to Heroku If your have account
+[![Deploy to Heroku](https://img.shields.io/static/v1?label=Deploy%20to&message=Heroku&color=430098&style=for-the-badge&logo=heroku&logoColor=white)](https://dashboard.heroku.com/new?template=https://github.com/Toputech/turn-meh)  
 
--------------
 
-<p align="center">
-   <a href="https://youtu.be/zBNbbkTFyG4?si=_a-skfMMehMd5zMT"><img src="https://i.ibb.co/71mYRh4/116-1161192-podcast-subscribe-listen-button-youtube-sign-hd-png.png" alt="Watch tutorial on YouTube" border="0"  width="105">
-    </a>
+   © Toputech 
+
+
+   
+## Supported Versions Node Versions to run this bot
+
+Please Use Node Version Higher to Get The Best Performance.
+
+| Version | Supported          |
+| ------- | ------------------ |
+| 14.x   | :x: |
+| 16.x   | ❗                |
+| 18.x   | :white_check_mark: |
+| 20.x   | ✅                |
+
+## Support 
+<a href="https://chat.whatsapp.com/E0Heg99qzJUKd34dwX60h5" target="_blank">
+    <img alt="whatsapp Group" src="https://img.shields.io/badge/ Whatsapp Support Channel -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+  </a>
 </p>
 
----------------
 
-
-### <br>    ❖ SESSION_ID ❖
-
-
-`✠ IF YOU DON'T HAVE YOUR SESSION_ID SO U CAN GET IT CLICK ON SESSION_ID BUTTON AND PASTE YOUR NUMBER With COUNTRY CODE EXAMPLE:+252755XXXX THEN YOU CAN GET YOUR SESSION_ID ✠`
-
-----------
-
-<p align="center">
-<a href='https://pair-bfou.onrender.com' target="_blank">
-  <img alt='Pairing Code' src='https://img.shields.io/badge/Get%20Session%20id=1-FF0000?style=for-the-badge&logo=opencv&logoColor=black'/>
-</a>
+HOW TO REACH THE OWNER? 
  
-----------
+   
+   <a href="https://wa.me/c/+254755835054">
+    <img src="https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+  </a>&nbsp;&nbsp;
+   <a
 
-----------
-
-<p align="center">
-<a href= 'https://pair-bfou.onrender.com' target="_blank">
-  <img alt='Pairing Code' src='https://img.shields.io/badge/Get%20Session%20id=2-0000FF?style=for-the-badge&logo=opencv&logoColor=black'/>
-</a>
- 
-----------
-
-
- 
-### <br>   ❖ DEPLOY_HEROKU ❖
-
-`✠ IF YOU WANT TO DEPLOY wllgavi_md BOT ON HEROKU SO FIRST GET YOUR SESSION_ID THEN CLICK THIS BLUE BUTTON [DEPLOY TO HEROKU] THEN YOU CAN ENJOY THIS BOT ✠`
-
-------------
- 
-<a  href="" target="blank"><img align="center" src="https://i.imgur.com/6rs61MY.png" alt="DEPLOY BOT" height="90" width="280" /></a>
-
-----------
-
-### <br>    ❖ DEPLOY_REPLIT ❖
-
-`✠ IF U HAVE YOUR REPLIT ACCOUNT SO YOU CAN EASY DEPLOY SILENT-SOBX-MD ON REPLIT CLICK BLACK BUTTON [DEPLOY TO REPLIT] AND FIND CONFIG.JSON FILE THEN PASTE YOUR SESSION AND MONGODB KEY THEN RUN CODE AND ENJOY BOT ✠`
-
--------------
-
-<p align="left"><a href="https://github.com/goatmesssi10/wllgavi_md"> <img src='https://img.shields.io/badge/-REPLIT-orange?style=for-the-badge&logo=replit&logoColor=white'/></a>
-
---------------
-
-### <br>   ❖ DEPLOY_KOYEB ❖
-
-`✠ IF YOU HAVE YOUR KOYEB ACCOUNT SO YOU CAN DEPLOY SILENT-SOBX-MD ON KOYEB WITH EASY SETUP NOTE:-MAYBE SOME PROBLEM TO DEPLOY ON KOYEB I ILL FIX SOON ✠`
-
----------
-
-<a href='https://app.koyeb.com/auth/signin' target="_blank"><img alt='DEPLOY' src='https://img.shields.io/badge/-KOYEB-blue?style=for-the-badge&logo=koyeb&logoColor=white'/></a>
-
-------------
-
-### <br>  ❖ DEPLOY_RAILWAY ❖
-
-`✠ IF YOU HAVE YOUR RAILWAY ACCOUNT SO YOU CAN DEPLOY SILENT-SOBX-MD ON RAILWAY WITH EASY SETUP NOTE:-MAYBE SOME PROBLEM TO DEPLOY ON KOYEB I ILL FIX SOON ✠`
-
---------
-
-<a href='https://railway.app/new' target="_blank"><img alt='DEPLOY' src='https://img.shields.io/badge/RAILWAY-h?color=black&style=for-the-badge&logo=railway'/></a></p>
-
----------------
-
-### <br> ❖ MORE DEPLOY METHOD ❖
-
---------
-### <br>   ❖ DEPLOY_GLITCH ❖
-
-<a href='https://glitch.com/signup' target="_blank"><img alt='DEPLOY' src='https://img.shields.io/badge/GLITCH-h?color=pink&style=for-the-badge&logo=glitch'/></a></p>
-
---------
-
-### <br>   ❖ DEPLOY_CODESPACE ❖
-
-<a href='https://github.com/codespaces/new' target="_blank"><img alt='DEPLOY' src='https://img.shields.io/badge/CODESPACE-h?color=navy&style=for-the-badge&logo=visualstudiocode'/></a></p>
-
---------
-
-### <br>   ❖ DEPLOY_RENDER ❖
-
-<a href='https://dashboard.render.com' target="_blank"><img alt='DEPLOY' src='https://img.shields.io/badge/RENDER-h?color=maroon&style=for-the-badge&logo=render'/></a></p>
-
------------
-
-### <br>   ❖ DEPLOY_WORKFLOWS ❖
-```
-name: Node.js CI
-
-on:
-  push:
-    branches:
-      - main
-  pull_request:
-    branches:
-      - main
-
-jobs:
-  build:
-
-    runs-on: ubuntu-latest
-
-    strategy:
-      matrix:
-        node-version: [20.x]
-
-    steps:
-    - name: Checkout repository
-      uses: actions/checkout@v3
-
-    - name: Set up Node.js
-      uses: actions/setup-node@v3
-      with:
-        node-version: ${{ matrix.node-version }}
-
-    - name: Install dependencies
-      run: npm install
-
-    - name: Start application
-      run: npm start
-```
-
------------
-
-`✠ HOW TO DEPLOY wllgavi_md ON WORKFLOWS FREE GITHUB WATCH VIDEO ✠`
-
--------------
-
-<p align="center">
-   <a href="https://youtu.be/jn8_kP5xxP4?si=LOydtNtHyv3nfzEB"><img src="https://i.ibb.co/71mYRh4/116-1161192-podcast-subscribe-listen-button-youtube-sign-hd-png.png" alt="Watch tutorial on YouTube" border="0"  width="105">
-    </a>
-</p>
-
--------------
-
-<a><img src='https://files.catbox.moe/k5jpgx.jpg'/></a>
-
-------------
-
-`⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛`
-
----------
-
-![IMG-20240330-WA0000](https://github.com/user-attachments/assets/62d3bffd-d1ec-4cb9-a5b1-28b745b90a90)
-
--------------------
+    ## Ask any thing
+<a><img src='https://files.catbox.moe/9si4ft.png'/></a>
+<a><img src='https://files.catbox.moe/9si4ft.png'/></a>
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=000000&center=true&width=910&height=100&lines=wllgavi_md;+THE+WORLD+BEST+WHATSAPP+BOT;+CREATED+BY+wllgavi_lover432🖤;KEEP+USING+wllgavi_md" alt="Typing SVG" /></a>
-  </p>
- 
+
+## Makesure you join my group for latest updates 
+ [`WA group`](https://chat.whatsapp.com/E0Heg99qzJUKd34dwX60h5)
 
 
------------
 
-**⚠️THANKS FOR USING wllgavi_md WHATSAPP BOT IF U HAVE ANY PROBLEM YOU CAN CONTECT ME NOTE wllgavi_md A ANTIBAN WHATSAPP BOT BUT IF YOUR WHATSAPP ACCOUNT BANNED THEN I'M NO RESPONSE ABLE THANKYOU BY wllgavi_lover432 KING OF WHATSAPP♥️☣️🥂**
+<a><img src='https://files.catbox.moe/9si4ft.png'/></a>
+<a><img src='https://files.catbox.moe/9si4ft.png'/></a>
+   
+   
+## Thankyou for choosing wllgavi MD bot 
 
-------------
 
-![license](https://github.com/goatmesssi10/wllgavi_md)?color=green&label=License&style=plastic)
+<a><img src='https://files.catbox.moe/9si4ft.png'/></a>
 
-----------
+## Contributions
+
+
+Contributions to *ALONE-MD* are welcome! If you have ideas for new features, improvements, or bug fixes, feel free to open an issue or submit a pull request.
+
+# Security Notice
+Alone Md is safe for your WhatsApp and heroku
+
+
+
+## powered by wllgavi MD
+
+
+
+The *ALONE-MD* is released under the [MIT License](https://opensource.org/licenses/MIT).
 
